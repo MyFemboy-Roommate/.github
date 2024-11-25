@@ -5,6 +5,13 @@
 *My Femboy Roommate* is a choice-driven visual novel developed by Nuteku. The game revolves around the player’s relationship with Robin, a shy yet charismatic femboy livestreamer who becomes the protagonist’s roommate. This simulation game blends humor, romance, and personal growth in a semi-sandbox environment, offering a unique interactive storytelling experience. With multiple endings, voice-acting, and collectible scenes, it has garnered attention for its inclusivity and engaging narrative.
 ![WX20241112-110442@2x](https://github.com/user-attachments/assets/6852d07b-f1cf-478b-b2e5-42552b6d2d60)
 
+**[My Femboy Roommate PC Download Full Game](https://myfemboy-roommate.com/my-femboy-roommate-pc-download/)**
+**[My Femboy Roommate APK Download Full Game for Android](https://myfemboy-roommate.com/my-femboy-roommate-android-apk-download/)**
+**[My Femboy Roommate Discord Server](https://myfemboy-roommate.com/my-femboy-roommate-discord-server/)**
+**[My Femboy Roommate Free Download Full Game](https://myfemboy-roommate.com/my-femboy-roommate-download/)**
+**[My Femboy Roommate Meme Gallery](https://myfemboy-roommate.com/my-femboy-roommate-meme-gallery/)**
+
+
 ## Background
 Released in 2024, *My Femboy Roommate* has been designed for PC (Windows, Mac, Linux) and Android. The game stands out for its focus on LGBTQ+ representation, incorporating a heartfelt story enriched with vivid pixel art and dynamic character interactions. Its vibrant online community and trending memes have further amplified its popularity among indie game enthusiasts.
 
